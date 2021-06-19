@@ -1,1 +1,1 @@
-# wasteways.github.i
+# wasteways.github.io
